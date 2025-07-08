@@ -43,3 +43,4 @@ Bring your hands, your mind, and your heart. Whether you’re here to learn, tea
 ---
 
 *See y’all at the next swap — and don’t forget to bring your curiosity and a smile.*
+Rewrite About page with Appalachian content
